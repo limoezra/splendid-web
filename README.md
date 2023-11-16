@@ -1,1 +1,1 @@
-splendidscents.xyz
+https://www.splendidscents.xyz
